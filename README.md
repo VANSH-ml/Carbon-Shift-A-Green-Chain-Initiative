@@ -2,7 +2,7 @@
  <br>
  Email: ad5066@srmist.edu.in
  <br>
- Phone: 9930508007 | 9890884725 | 7307483504
+ Phone: 9930508007
 
  <br>
 
