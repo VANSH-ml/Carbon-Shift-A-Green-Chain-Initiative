@@ -1,4 +1,4 @@
- Name: ATHARV DWIVEDI | SHIVAM MITTAL | ARYAN SONAWANE
+ Name: ATHARV DWIVEDI | Vansh Wadhwani | ARYAN SONAWANE
  <br>
  Email: ad5066@srmist.edu.in
  <br>
